@@ -59,4 +59,4 @@ This policy is effective as of 2022-08-30
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at lunique604@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at ace.seedat300@gmail.com.
