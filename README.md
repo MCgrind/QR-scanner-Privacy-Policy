@@ -1,0 +1,1 @@
+# QR-scanner-Privacy-Policy
